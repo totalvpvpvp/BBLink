@@ -11,7 +11,7 @@ BBLink机场，低延迟隧道 + IPIC专线，最高可达5Gbps带宽，完美�
 新用户有1天免费试用，先试用再购买。
 
 ## BBLink优惠码
-
+1
 元旦优惠：
 
 减20%：yuandankuaile
